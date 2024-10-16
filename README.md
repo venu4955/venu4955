@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @venu4955
-- 👀 I’m interested on my own ideas
+- 👀 I’m interested on learning new things/challenges
 - 🌱 I’m currently learning python programming 
 - 💞️ I’m looking to collaborate with the same mindset people's
 - 📫 How to reach me text me/call me:9347174955
